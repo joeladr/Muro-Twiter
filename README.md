@@ -1,4 +1,3 @@
 
-
-
-Espero que le guste Amadis.
+Muro Twitter 
+@joel_doble
